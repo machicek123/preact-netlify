@@ -1,5 +1,5 @@
 ---
-title: Proč Babiš?
+title: Proč Babiš? Edit
 date: 2019-08-27T18:44:24.217Z
 tags: travel, philosophy, hobby
 ---
