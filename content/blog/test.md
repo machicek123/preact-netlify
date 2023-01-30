@@ -7,4 +7,10 @@ Proto!!!
 
 ## Babiš je bůh
 
-![](https://g.denik.cz/1/7b/praha-rozhovor-babis-2020-04.jpg)
+### Babiš je bů#
+
+![](/assets/profile.jpg)
+
+f﻿fggfgf
+
+![](/assets/lucas-ludwig-dh2ztme9kni-unsplash.jpg)
